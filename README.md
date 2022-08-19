@@ -1,1 +1,0 @@
-# programavimo_ivadas
